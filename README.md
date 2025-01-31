@@ -1,1 +1,1 @@
-# shengroup709.github.io
+# Smart Hybrid Engineering Network (SHNE) Group
