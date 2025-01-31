@@ -1,1 +1,1 @@
-# Smart Hybrid Engineering Network (SHNE) Group
+# Smart Hybrid Engineering Network (SHEN) Group
